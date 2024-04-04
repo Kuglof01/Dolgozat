@@ -1,1 +1,1 @@
-# Dolgozat
+# Oláh Kende
